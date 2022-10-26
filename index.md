@@ -1,1 +1,0 @@
-# serranopolis_sbsr
